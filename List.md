@@ -14,15 +14,15 @@
 
 > **Divine**
 
-6. ``6.99`` **Eternal Punishment** by midlecs [6717933469] [https://www.youtube.com/watch?v=qSwJ6ItPugE]
+6. ``6.93`` **Derelict Industry** by CN08_ [10738856300] [https://www.youtube.com/watch?v=Jd2jlFv4YYk]
 
-7. ``6.93`` **Derelict Industry** by CN08_ [10738856300] [https://www.youtube.com/watch?v=Jd2jlFv4YYk]
+7. ``6.87`` **Rooms 2** by The Rooms Official Devs [12233103006] [https://www.youtube.com/watch?v=tcpvubF4XXM]
 
-8. ``6.87`` **Rooms 2** by The Rooms Official Devs [12233103006] [https://www.youtube.com/watch?v=tcpvubF4XXM]
+8. ``6.86`` **Backburner** by Accurate_Abilities [14827716361] [https://www.youtube.com/watch?v=3y9V18KJryw]
 
-9. ``6.86`` **Backburner** by Accurate_Abilities [14827716361] [https://www.youtube.com/watch?v=3y9V18KJryw]
+9. ``6.84`` **Layers** by Enszo [8559494055/layers] [https://www.youtube.com/watch?v=Yja6SpZVU_U]
 
-10. ``6.84`` **Layers** by Enszo [8559494055/layers] [https://www.youtube.com/watch?v=Yja6SpZVU_U]
+10. ``6.83`` **Eternal Punishment** by midlecs [6717933469] [https://www.youtube.com/watch?v=qSwJ6ItPugE]
 
 11. ``6.82`` **DISTORTION** by ssgam_eR [12555344855] [https://www.youtube.com/watch?v=nchdYslFl6o]
 
